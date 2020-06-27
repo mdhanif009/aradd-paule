@@ -1,2 +1,0 @@
-# aradd-paule
-Romjan mobarok
